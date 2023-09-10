@@ -36,4 +36,4 @@ Now everyday select 2-3 universities to visit their websites and your relevant d
 
  As said, this is common mode of getting admission in US, Canada (a member on this group got scholarship using this), most students here are on this university scholarship, but it takes some effort and patience to get it.
 
- ^^ Credits to Zuha Malik for sharing valuable information with the community
+ ^^ Credits to **Zuha Malik** for sharing valuable information with the community
